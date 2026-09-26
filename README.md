@@ -1,4 +1,4 @@
-💫 Hi 👋, I'm Prashant Raj
+💫 Hi 👋, I'm Prashant Raj.
 A passionate CSE Student || From India
 
 ## 🌐 Socials:
